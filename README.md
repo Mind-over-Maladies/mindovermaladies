@@ -1,1 +1,1 @@
-# mindovermaladies
+for mindovermaladies.ca
